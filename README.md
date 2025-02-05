@@ -21,5 +21,9 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 # 🎓Education
 **Bachelor of Commerce (Pursuing)| Kumaun University**
 
+**🌐Let's Connect**
+E:\Excel Sheet\resume
+
+
 2023 - 2026 | Kashipur, india
 
