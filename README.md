@@ -1,5 +1,3 @@
-# abhishekmathpal
-config files for my github profile
 # Hi, I'm Abhishek Mathpal
 **Welcome to my Github Profile**
 
