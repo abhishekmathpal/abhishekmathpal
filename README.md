@@ -23,6 +23,7 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 2023 - 2026 | Kashipur, india
 
 # 🌐Let's Connect
+[You tube] (https://www.youtube.com/)
 
  
 
