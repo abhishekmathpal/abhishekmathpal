@@ -22,7 +22,7 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 **Bachelor of Commerce (Pursuing)| Kumaun University**
 2023 - 2026 | Kashipur, india
 
-**🌐Let's Connect**
+# 🌐Let's Connect
 
 
 
