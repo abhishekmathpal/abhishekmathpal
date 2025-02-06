@@ -16,7 +16,7 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 - **Soft Skills**: Problem-Solving, Critical Thinking, Continuous Learning, Analytical Thinking
 
 # 🎖️Certifications
-**Data Analyst Certification (8 Months)** – Minder Institute
+- **Data Analyst Certification (8 Months)** – Minder Institute
 
 # 🎓Education
 **Bachelor of Commerce (Pursuing)| Kumaun University**
