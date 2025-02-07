@@ -24,6 +24,8 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 
 # 🌐Let's Connect
 
+- [Linkedin](https://bit.ly/40PB6r9)
+
 
 
 
