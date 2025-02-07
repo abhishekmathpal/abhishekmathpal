@@ -23,9 +23,8 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 2023 - 2026 | Kashipur, india
 
 # 🌐Let's Connect
-
+- [Resume](https://drive.google.com/file/d/1n3olNxS6l-Dk8cvt044NF1sUt_Ewwvpn/view?usp=drivesdk)
 - [Linkedin](https://bit.ly/40PB6r9)
-
 - Reach out to me - abhishekksp647@gmail.com
 
 
