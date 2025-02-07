@@ -26,7 +26,7 @@ As a Data Analyst, I specialize in transforming raw data into meaningful insight
 
 - [Linkedin](https://bit.ly/40PB6r9)
 
-- Reach out to me - (abhishekksp647@gmail.com)
+- Reach out to me - abhishekksp647@gmail.com
 
 
 
